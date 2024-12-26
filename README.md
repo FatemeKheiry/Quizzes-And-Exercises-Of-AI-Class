@@ -1,0 +1,1 @@
+# Quizzes-And-Exercises-Of-AI-Class
